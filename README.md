@@ -9,5 +9,5 @@ Meu nome é Dihni Carvalho, kitesurfista, torcedor do Palmeiras e apaixonado por
 
 👨🏻‍💻 Estudante de Direito na Unifor.
 
-💻 Estudante de Desenvolvimento Full-Stack na Digital College.
+💻 Estudante de Desenvolvedor Full-Stack na Digital College.
 
