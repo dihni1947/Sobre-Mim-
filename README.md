@@ -5,9 +5,9 @@ Oi!️🤖
 
 Meu nome é Dihni Carvalho, kitesurfista, torcedor do Palmeiras e apaixonado por Fórmula 1 🏎
 
-📍 Naci em Pedra Branca, mas moro  em Fortaleza/CE.
+📍 Fortaleza/CE.
 
-👨🏻‍💻 Estudante de Direito na Unifor.
+👨🏻‍💻 Estudante de Direito.
 
 💻 Estudante de Desenvolvedor Full-Stack na Digital College.
 
